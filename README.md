@@ -17,4 +17,3 @@ Suitable for homes, industries & solar farms
 If you want, I can give:
 👉 Applications
 👉 Advantages
-👉 2-mark / 5-mark answers for exam
